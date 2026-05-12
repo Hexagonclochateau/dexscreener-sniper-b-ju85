@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated dexscreener sniper bot | multi-wallet-support + slippage-control, the #1 dexscreener sniper bot. Includes multi-wallet-support and
 
 
 
